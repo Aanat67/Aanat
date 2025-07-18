@@ -1,1 +1,1 @@
-# Aanat
+Hi my name is Aanat Ghimire. A thing I am good at is playing soccer and playing Roblox. My favorite class is math because I like doing math problems. My goal for this coding class is to learn coding. My favorite show is One Piece. And I listen to the weekend and Kendrick Lamar. My favorite food is Chatpate and Pani Puri. My favorite game is Roblox. Did you know I am a human? Crazy right.
